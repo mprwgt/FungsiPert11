@@ -1,4 +1,4 @@
-# FungsiPert11
+# FungsiPertemuan11
 
 ![Jepretan Layar 2021-12-15 pada 18 09 10](https://user-images.githubusercontent.com/92860030/146176086-6ecbcc83-f163-4ee0-9c2a-e7599ff7129d.png)
 
